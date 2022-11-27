@@ -1,1 +1,1 @@
-bad oyvey skid with mid oldfag modules like ghastfarmer etc.
+bad oyvey with mid oldfag module 
